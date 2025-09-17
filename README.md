@@ -1,0 +1,1 @@
+Background information found in BUAN_4310 Project_1_alternate_overview.docx
